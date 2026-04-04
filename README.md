@@ -1,2 +1,3 @@
-# alexa-s-osu-skins
-all skins that I personally use while playing osu!
+# OSU! SKINS
+Skins that I use if a link is broken dm the user @xswqd on discord :)
+
