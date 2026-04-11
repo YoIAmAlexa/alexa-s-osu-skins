@@ -17,3 +17,6 @@ Skins that I use if a link is broken dm the user @xswqd on discord :)
 
 # [osu default-ish skin NM](https://github.com/YoIAmAlexa/alexa-s-osu-skins/raw/refs/heads/main/osu%20default%20ish%20nm.osk)
 ![screenshot071](https://github.com/user-attachments/assets/eb56a0f8-3817-40c6-bb7d-304865270bfa)
+
+# [Ryanstolefromkevin -purple](https://www.mediafire.com/file/gsrptkv1ymkjo8h/-_Ryanstolefromkevin_Purple.osk/file)
+## SCREENSHOT MISSING OH WELL 🤷‍♂️
