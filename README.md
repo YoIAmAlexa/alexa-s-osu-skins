@@ -8,4 +8,4 @@ Skins that I use if a link is broken dm the user @xswqd on discord :)
 ###### [alternate link](https://www.mediafire.com/file/5yvbwjov2g3c6io/new+skin+pog+1.osk/file)
 <img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/70f2f073-087c-43e3-b992-000bcf3e1762" />
 # [Varvalian Trail + healthbar](https://www.mediafire.com/file/feeol7i1v1rddld/Varvalian+with+trail+++health+bar.osk/file)
-![screenshot068](https://github.com/user-attachments/assets/7a0d2d92-69b7-48d6-a26b-66608a300c53)
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/7a0d2d92-69b7-48d6-a26b-66608a300c53" />
