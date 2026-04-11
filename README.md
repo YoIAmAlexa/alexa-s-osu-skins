@@ -11,3 +11,9 @@ Skins that I use if a link is broken dm the user @xswqd on discord :)
 
 # [Varvalian Trail + hp bar](https://www.mediafire.com/file/feeol7i1v1rddld/Varvalian+with+trail+++health+bar.osk/file)
 <img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/7a0d2d92-69b7-48d6-a26b-66608a300c53" />
+
+# [osu default-ish skin DT](https://github.com/YoIAmAlexa/alexa-s-osu-skins/raw/refs/heads/main/osu%20default%20ish%20dt.osk)
+![screenshot070](https://github.com/user-attachments/assets/5d0f9c51-4be7-4d7e-9509-0acb262ce102)
+
+# [osu default-ish skin NM](https://github.com/YoIAmAlexa/alexa-s-osu-skins/raw/refs/heads/main/osu%20default%20ish%20nm.osk)
+![screenshot071](https://github.com/user-attachments/assets/eb56a0f8-3817-40c6-bb7d-304865270bfa)
