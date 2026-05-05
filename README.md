@@ -20,3 +20,6 @@ Skins that I use if a link is broken dm the user @xswqd on discord :)
 
 # [Ryanstolefromkevin -purple](https://www.mediafire.com/file/gsrptkv1ymkjo8h/-_Ryanstolefromkevin_Purple.osk/file)
 ## SCREENSHOT MISSING OH WELL 🤷‍♂️
+
+# [Sytho alfie ver2.2 edit](https://github.com/YoIAmAlexa/alexa-s-osu-skins/raw/refs/heads/main/Sytho%20alfie%20ver2.2%20edit.osk)
+<img width="1920" height="1080" alt="screenshot045" src="https://github.com/user-attachments/assets/ccdc697f-1b0d-4408-ae49-d34888736dae" />
